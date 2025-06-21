@@ -3,7 +3,7 @@
 <a href="https://discord.gg/XCgDcusrNj"><img align="right" width="425" src="https://lanyard.cnrad.dev/api/1093501044740325417?&bg=0d1117&animated=false&hideDiscrim=true&borderRadius=5px&idleMessage=Probably%20doing%20something%20else..."></a>
 
 
-### Hi!👋 I'm Mizu🍙
+### Hi!👋 I'm WangYi🍙
 
 *SUPER UNEMPLOYED OHIO FINAL BOSS*
 
